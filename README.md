@@ -3,3 +3,5 @@
 Integrantes que contribuíram nesta versão: [Erick]
 
 Integrantes que contribuíram nesta versão: [Rafael]
+
+Integrantes que contribuíram nesta versão: [Erick]
